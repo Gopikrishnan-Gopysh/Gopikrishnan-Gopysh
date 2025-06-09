@@ -24,7 +24,9 @@ I'm a curious and driven tech enthusiast actively participating in hackathons, i
 
 📧 [gopikrishnan.gkg@gmail.com](mailto:gopikrishnan.gkg@gmail.com)  
 📱 [+971 50 318 1601](tel:+971503181601)  
-[🔗 LinkedIn](https://www.linkedin.com/in/gopikrishnan-gopysh/) | [💻 GitHub](https://github.com/Gopikrishnan-Gopysh) | [🌐 Portfolio](https://gopigopysh06.wixsite.com/gopikrishnan-gopysh)
+
+[🔗 LinkedIn](https://www.linkedin.com/in/gopikrishnan-gopysh/) | [💻 GitHub](https://github.com/Gopikrishnan-Gopysh) | [🌐 Portfolio](https://gopigopysh06.wixsite.com/gopikrishnan-gopysh)  
+📸 [Instagram](https://www.instagram.com/gopikrishnan.gopysh) | 🎥 [YouTube](https://www.youtube.com/@Gopikrishnan.gopysh) | 🎵 [TikTok](https://www.tiktok.com/@gopikrishnan.gopysh)
 
 ---
 
